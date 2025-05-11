@@ -1,0 +1,1 @@
+# simplify shortly clearly summerise only important stuff and configure it the way i can copy paste in notion
